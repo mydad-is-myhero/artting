@@ -26,8 +26,10 @@ not in naruto fandom dont flame me
 ## 6) Shiro
 <img width="1274" height="2290" alt="1000035947" src="https://github.com/user-attachments/assets/e558ea9e-46e6-4350-aec6-08993106d043" />
 ## 7) yaoi 🥰🥰🥰
+
 ![1000035945](https://github.com/user-attachments/assets/09c878d8-27c8-471a-9387-45e0940d8f46)
 ## 8) the ghy nobodu invtied
+
 ![1000035944](https://github.com/user-attachments/assets/9208eed5-104a-49e7-aaa7-e816c9865178)
 burrh
 
