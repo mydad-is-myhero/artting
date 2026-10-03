@@ -8,10 +8,13 @@ clone high jfk >>>
 ![1000035934](https://github.com/user-attachments/assets/ff1a7b2a-23d2-4dae-9ec1-b4d96b4b509d)
 ![1000035936](https://github.com/user-attachments/assets/fc96c92a-608e-436b-a293-a63cfd3c55f1)
 <img width="1536" height="2445" alt="1000035937" src="https://github.com/user-attachments/assets/545e8658-0356-4a31-81d9-c8d01a6aaabb" />
-## 2) Shini 🥰🥰🥰 Chi 🥰🥰🥰<img width="1523" height="1654" alt="1000035940" src="https://github.com/user-attachments/assets/cef8e5f4-a70e-482a-8363-a5ce478258aa" />
+## 2) Shini 🥰🥰🥰 Chi 🥰🥰🥰
+<img width="1523" height="1654" alt="1000035940" src="https://github.com/user-attachments/assets/cef8e5f4-a70e-482a-8363-a5ce478258aa" />
 <img width="729" height="2270" alt="1000035939" src="https://github.com/user-attachments/assets/e7bdeca4-16d2-4ee0-ad6e-d54b1067087f" />
+
 ## 3) Stupid gay karate ballerina man
 ![1000035941](https://github.com/user-attachments/assets/5adc4bd2-b734-49eb-911c-5f8e56deb2cf)
+
 ## 4) British
 ![1000035943](https://github.com/user-attachments/assets/0d202f20-d082-4a09-bad5-27dfc7e8d5bd)
 iwlliam afton
